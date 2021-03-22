@@ -1,6 +1,6 @@
 # Política de Privacidad, Granja Toony
 * Efectiva desde: 21 de Marzo de 2021
-* Última revisión: 5 de Diciembre de 2021
+* Última revisión: 21 de Marzo de 2021
 
 
 ## Introducción
